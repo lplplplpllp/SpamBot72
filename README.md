@@ -1,0 +1,2 @@
+# SpamBot72
+w
